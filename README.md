@@ -1,2 +1,2 @@
-# nyobainkuy.github.io
-This is My Bussiness
+# Assalamu'alaikum
+ Nyobain Kuy.
